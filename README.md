@@ -7,6 +7,8 @@
 
 <a href="https://74mao.com/">74猫导航主站</a>
 
+<a href="https://74mao.com/">Telegram频道传送门</a>
+
 <a href="https://hj-822.pages.dev/">91吃瓜</a>
 
 <a href="https://hj-835.pages.dev/">91吃瓜</a>
